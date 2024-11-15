@@ -1,0 +1,2 @@
+# smigma
+sisanya kuserahkan padamu
